@@ -1,23 +1,23 @@
-# ✈️ AviaMasters — Play Now!
+# ✈️ AviaMasters — Premium Access
 
 ![AviaMasters](avia.jpg)
 
-Welcome to AviaMasters — a fast-paced game with bright visuals and exciting rounds.
+Welcome to **AviaMasters**, a fast-paced premium game experience with smooth gameplay and luxury visuals.
 
 ---
 
-## 🔗 Play / Register
-👉 **[START PLAYING](https://vv-one96.com/v3/5651/landing-aviamasters-demo?p=z1rz)**
+## 🔗 Start Playing
+👉 **[ENTER AVIAMASTERS](https://vv-one96.com/v3/5651/landing-aviamasters-demo?p=z1rz)**
 
 ---
 
-## ⭐ Features
+## ⭐ Why AviaMasters?
 - Instant registration
-- Mobile and desktop friendly
-- Bright, attractive graphics
-- Fast rounds and gameplay
-- Support available in Russian
+- Optimized for mobile and desktop
+- High-speed dynamic rounds
+- Clean and premium visual design
+- Smooth user experience
 
 ---
 
-🎮 Click the link above to go directly to the game.
+🚀 Click the button above to access the game instantly.
